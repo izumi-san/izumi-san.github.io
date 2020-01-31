@@ -1,1 +1,0 @@
-# izumi-san.github.io
